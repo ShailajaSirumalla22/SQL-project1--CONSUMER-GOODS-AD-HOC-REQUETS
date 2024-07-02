@@ -3,7 +3,7 @@
 ![Screenshot (48)](https://github.com/ShailajaSirumalla22/SQL-project1--CONSUMER-GOODS-AD-HOC-REQUETS/assets/150336143/22aa62ca-fb7c-444f-ab13-2588f12e086f)
 
 ---------------------------------------------------
-𝐏𝐨𝐰𝐞𝐫 𝐏𝐨𝐢𝐧𝐭 𝐒𝐥𝐢𝐝𝐞𝐬 𝐥𝐢𝐧𝐤 - https://1drv.ms/p/c/97be3f3acd4abdbb/AXWC1yat65dHrLxaOlD-MKM?e=fmZNV3
+𝐏𝐨𝐰𝐞𝐫 𝐏𝐨𝐢𝐧𝐭 𝐒𝐥𝐢𝐝𝐞𝐬 𝐥𝐢𝐧𝐤 - https://1drv.ms/p/c/97be3f3acd4abdbb/EXWC1yat65dHrLxaOlD-MKMBXDOpDLj-3wb7_VNeiN9-SA?e=eFnZ2A
 ----------------------------------------------------
 
 
